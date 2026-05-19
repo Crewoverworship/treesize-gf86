@@ -1,4 +1,4 @@
-# 
+# advanced Advanced SystemCare para PC scripts é o melhor Advanced SystemCare para PC scripts com opcoes de filtragem e Fancy Zones. Seguro, confiável e otimizado para máximo
 
 
 
